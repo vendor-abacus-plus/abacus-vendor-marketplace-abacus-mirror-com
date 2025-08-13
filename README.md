@@ -52,3 +52,5 @@ This article is crafted to rank effectively for **"abacus vendor marketplace aba
 
 <a href="http://pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion"><img src="/scr/desktop.webp" alt="Abacus Login" style="max-width: 100%;"></a>  
 <a href="http://pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion"><img src="/scr/start.webp" alt="Abacus Register" style="max-width: 100%;"></a> 
+
+Update:  Wednesday 13 August 2025 The previously broken link has been restored.
